@@ -2,7 +2,7 @@
 
 Nick Russert :)
 
-Christopher Ong - Worked on architecture diagram and the description of the attributes
+Christopher Ong :D
 
 Hsa Moo
 
